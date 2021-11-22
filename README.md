@@ -12,3 +12,5 @@ I'll be adding some more sketches in the future, so make sure to stop by every o
 ![OnePiece_bosses](OnePiece_bosses.jpg)
 ![kaneki](kaneki.jpg)
 ![chibi_dola](chibi_dola.jpg)
+![schwidola](schwidola.jpg)
+![ace](ace.jpg)

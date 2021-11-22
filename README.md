@@ -11,3 +11,4 @@ I'll be adding some more sketches in the future, so make sure to stop by every o
 ![Meliodas_casual](Meliodas_casual.jpg)
 ![OnePiece_bosses](OnePiece_bosses.jpg)
 ![kaneki](kaneki.jpg)
+![chibi_dola](chibi_dola.jpg)
